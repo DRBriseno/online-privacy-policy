@@ -1,8 +1,14 @@
 # online-privacy-policy
 Online Privacy Policy
 
-Privacy Policy
-          Online Privacy Policy
+Terms and Conditions
+
+© 2021 - Virt.Ella & DIXII.co - All Rights Reserved. Contact | Privacy Policy| Terms & Conditions
+
+Your information is safe with us. Cannot wait to see you in the program.
+
+Dixii Rose can not and does not make any guarantees about your ability to get results or earn any money with our ideas, information, tools, or strategies.
+
 DIXII.co | Virtu.Ella | Dixii Rose (the “Company”) respects the privacy concerns of the users of its website, DIXII.co | Virtu.Ella | Dixii Rose 
 and the services provided therein (the “Site”). The Company thus provides this privacy statement to explain what information is gathered during a 
 visit to the Site and how such information may be used.
