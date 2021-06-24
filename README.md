@@ -9,7 +9,7 @@ Your information is safe with us. Cannot wait to see you in the program.
 
 Dixii Rose can not and does not make any guarantees about your ability to get results or earn any money with our ideas, information, tools, or strategies.
 
-DIXII.co | Virtu.Ella | Dixii Rose (the “Company”) respects the privacy concerns of the users of its website, DIXII.co | Virtu.Ella | Dixii Rose 
+DIXII.co | Virtu.Ella | Dixii Rose (the “Company”) respects the privacy concerns of the users of its website, DIXII.co| Virtu.Ella, which includes DIXII.co, all one page sites, FB groups, social media, and all platforms in which you interact with "DIXII.co | Virtu.Ella | Dixii Rose" among others (collectively the “Site”)
 and the services provided therein (the “Site”). The Company thus provides this privacy statement to explain what information is gathered during a 
 visit to the Site and how such information may be used.
 Please also review the Terms of Use at https://github.com/DRBriseno/terms-and-conditions/edit/main/README.md which also govern use of this Site.
